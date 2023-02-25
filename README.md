@@ -5,7 +5,7 @@ Motahar Hossain
 
 💻 I just love Exploring New Things - and - Quick Solutions 🤔
 
-🎓   I'm student of class 9, but my dreams brought me here.
+🎓   I'm graduate in CSE, but my dreams brought me here.
 
 🌱   Learning more about Web Development and Design.
 
